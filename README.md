@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jake1124 but you can call me Jake
 - 👀 I’m interested in art baking coding really anything that involves effort
 - 🌱 I’m currently learning algebra art and how to code and bake
-- 💞️ I’m looking to collaborate on any prject feel free to contact me for anyhting!
+- 💞️ I’m looking to collaborate on any project feel free to contact me for anyhting!
 - 📫 How to reach me? You can reach me through comments or at jasr7870@gmail.com
 
 <!---
